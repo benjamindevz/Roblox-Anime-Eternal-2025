@@ -12,6 +12,7 @@
 **FREE DOWNLOAD → Auto Farm Souls + Kill Aura + Infinite Stats + Fly + Unlock ALL Bloodlines & Clans – #1 Anime Eternal Hack 2025!**
 
 **anime eternal script 2025, anime eternal hack roblox, auto farm anime eternal, infinite stats bloodline unlock undetected**
+![c3213c13c13c13c](https://github.com/user-attachments/assets/5805c8b5-9a1b-4de7-84f2-d4ea8b0b7b5c)
 
 </div>
 
